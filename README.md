@@ -11,7 +11,7 @@
 - I have experience with PLC programming and automation in industry and homes too.
 - At my work now I am at IT buiseness service with configuration of 2nd and 3rd level equipment for whole voideship where I leave.
 - 
-- 💞️ I’m looking to collaborate on people of companies where I could draw from my experience and develop my programming skills.
+- 💞️ I’m looking to collaborate on people or companies where I could draw from my experience and develop my programming skills.
 - 
 - 
 - 📫 How to reach me ...
